@@ -1,0 +1,1 @@
+# 10-sinif-kimya-planli-ders-foyu-2023-32
